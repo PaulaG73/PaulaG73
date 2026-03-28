@@ -11,4 +11,4 @@
 Estoy buscando trabajo para poder desarrollar mis habilidades, implementar los conocimientos adquiridos y ser un aporte en un mundo que avanza a pasos agigantados en el ámbito de la tecnología.
 
 ​
-En paralelo, me encantaría poder apoyar y acompañar el aprendizaje de otras personas que vayan descubriendo este mundo e insentivarlos a perseverar en el camino.​
+En paralelo, me encantaría poder apoyar y acompañar el aprendizaje de otras personas que vayan descubriendo este mundo e incentivarlos a perseverar en el camino.​
