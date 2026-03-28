@@ -1,7 +1,5 @@
 ## HOLA! 👋
-​✔️Mi nombre es Paula Gajardo Schmidlin. 
-
-​✔️Soy chilena y vivo en Santiago.
+​✔️Mi nombre es Paula Gajardo Schmidlin, soy chilena y vivo en Santiago.
 
 ​✔️Me dicen ​Vinóloga🍷.
 ​
