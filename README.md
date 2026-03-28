@@ -1,5 +1,6 @@
 ## HOLA! 👋
 ​✔️Mi nombre es Paula Gajardo Schmidlin, soy chilena y vivo en Santiago y me dicen ​Vinóloga🍷.
+
 ​
 ​​✔️Agrónoma-Enóloga 🌱​ de profesión y Desarroladora Front End 🖥️​...por convicción.
 
