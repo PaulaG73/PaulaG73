@@ -3,7 +3,7 @@
 
 ​✔️Soy chilena y vivo en Santiago.
 
-​✔️Me dicen ​Vinóloga🍷
+​✔️Me dicen ​Vinóloga🍷.
 ​
 ​​✔️Agrónoma-Enóloga 🌱​ de profesión y Desarroladora Front End 🖥️​...por convicción.
 
